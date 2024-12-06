@@ -1,8 +1,4 @@
 # app-dev
 My first repository
 
-MUSEUM
-
-BEACH
-
-HOUSE
+I WANT TO BE A CEO
