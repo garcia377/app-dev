@@ -1,3 +1,5 @@
 # app-dev
 My first repository
-SECTION - BSIT3.1C
+I'M MARIA ELAINE M. GARCIA
+I LOVE BUTTERFLY
+I HATE IPIS
