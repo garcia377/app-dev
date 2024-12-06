@@ -1,4 +1,8 @@
 # app-dev
 My first repository
 
-I WANT TO BE A CEO
+SECRET MUNA PO SIR
+
+TAPOS SECRET PO ULIT
+
+LASTLY SECRET ULIT
